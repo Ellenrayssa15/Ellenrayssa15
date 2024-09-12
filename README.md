@@ -1,16 +1,26 @@
-## Hi there 👋
+boas vindas espero que voce goste
 
-<!--
-**Ellenrayssa15/Ellenrayssa15** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+***Ellen***
 
-Here are some ideas to get you started:
+estou estudando na[alura]( https://www.google.com/search?q=alura&oq=alura&aqs=chrome..69i57j0i271l3.3752j0j1&sourceid=chrome&ie=UTF-8)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+eu gosto de fofocar 
+
+gosto de mecher no celular 
+
+gosto de sair 
+
+gosto de comer 
+
+gosto de assistir filmes de açao 
+
+gosto de cachorro e gatos 
+
+pretendo pro meu futuro que eu seja feliz 
+
+
+![image](https://github.com/user-attachments/assets/e96d52e4-76d8-4479-aacc-3722b919d516)
+
+
+![]https://media.tenor.com/dWYtIWSf7ZsAAAAj/blow-kiss-anitta.gif)
